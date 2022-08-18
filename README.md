@@ -1,1 +1,1 @@
-hpbdnpu.github.io/
+hpbdnpu.github.io
